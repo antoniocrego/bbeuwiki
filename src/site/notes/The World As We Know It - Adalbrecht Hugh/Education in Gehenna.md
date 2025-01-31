@@ -13,6 +13,7 @@ Higher forms of education do exist in [[The World As We Know It - Adalbrecht Hug
 - [[Conservatories\|Conservatories]], for forming **Bards**, **Historians**, and **Orators**
 - [[Scriptoriums\|Scriptoriums]], for forming **Bards**, **Scribes**, **Chroniclers**, **Philosophers**, **Playwrights**, and **Poets**
 - [[Enclaves\|Enclaves]], for forming **Artificers** and **Engineers**
+
 Some other minor specializations also have schools of their own, but let's not get too minute.
 
 These institutions are infrequent, with some countries being known for their education in certain areas. For example, [[The World As We Know It - Adalbrecht Hugh/The Nations/Lothria/Lothria\|Lothria]] is known for its [[Colleges of War\|Colleges of War]], [[Scriptoriums\|Scriptoriums]], and [[Magic Courses\|Magic Courses]]; while [[The World As We Know It - Adalbrecht Hugh/The Nations/The Independent Imperial Province of Rosaria/The Independent Imperial Province of Rosaria\|The Independent Imperial Province of Rosaria]] is known for its [[Priesthood Courses\|Priesthood Courses]].
