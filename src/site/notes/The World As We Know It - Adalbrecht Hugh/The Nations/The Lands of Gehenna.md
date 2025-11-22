@@ -10,7 +10,7 @@
 
 There are thirteen major nations in **Gehenna**, which are very often reflected in the works of [[Sir Camões\|Sir Camões]] of [[The World As We Know It - Adalbrecht Hugh/The Nations/Bel'orizonte/Bel'orizonte\|Bel'orizonte]].
 - [[The World As We Know It - Adalbrecht Hugh/The Nations/Francia/Francia\|Francia]] - France/Italy
-- [[The World As We Know It - Adalbrecht Hugh/The Nations/Deutsches Kaiserreich/Deutsches Kaiserreich\|Deutsches Kaiserreich]] - Germany
+- [[The World As We Know It - Adalbrecht Hugh/The Nations/Kaiserreich/Kaiserreich\|Kaiserreich]] - Germany
 - [[The World As We Know It - Adalbrecht Hugh/The Nations/Österreich/Österreich\|Österreich]] - Austria
 - [[The World As We Know It - Adalbrecht Hugh/The Nations/Bel'orizonte/Bel'orizonte\|Bel'orizonte]] - Portugal
 - [[The World As We Know It - Adalbrecht Hugh/The Nations/Veridian Reach/Veridian Reach\|Veridian Reach]] - United States of America/United Kingdom
@@ -24,6 +24,8 @@ There are thirteen major nations in **Gehenna**, which are very often reflected 
 - [[The World As We Know It - Adalbrecht Hugh/The Nations/Ung/Ung\|Ung]] - Not really mentioned in the works of [[Sir Camões\|Sir Camões]]... unless you wish to make racist remarks, then I'm sure you can find plenty of "parallels"
 
 There is a fourteenth nation, technically, although it is not populated by any - well - civilized people. It is a very unstructured society and has such been dubbed [[The World As We Know It - Adalbrecht Hugh/The Nations/The Wild Islands of Saint Michael/The Wild Islands of Saint Michael\|The Wild Islands of Saint Michael]]. The same can be told for [[The World As We Know It - Adalbrecht Hugh/The Nations/The Underdark/The Underdark\|The Underdark]], a pseudo-nation which lies under the lands of Gehenna, but is known for its presence of criminal activity and mining operations, thus not possessing a theoretical official government ether.
+
+Long ago, another nation known as [[The World As We Know It - Adalbrecht Hugh/The Nations/Azryt and Nyx Sombra/Azryt\|Azryt]] also existed to the east of the central masses, but it was consumed by the [[The World As We Know It - Adalbrecht Hugh/Major Organizations/The Abyss/Abyss\|The World As We Know It - Adalbrecht Hugh/Major Organizations/The Abyss/Abyss]], giving way to the inhospitable lands of [[The World As We Know It - Adalbrecht Hugh/The Nations/Azryt and Nyx Sombra/Nyx Sombra\|Nyx Sombra]], a wasteland of [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/Children of the Abyss/Children of the Abyss\|Children of the Abyss]] emitting a dense fog of [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/Black Breath\|Black Breath]], dangerous to any travelers.
 
 Before [[The World As We Know It - Adalbrecht Hugh/The General Timeline/PC 533 - Francia is Victorious\|PC 533]], the map of the world was very different, notably changed by [[The World As We Know It - Adalbrecht Hugh/The General Timeline/PC 529 - The Francian War Machine kicks off\|the start of the Francian expansion]] and [[The World As We Know It - Adalbrecht Hugh/The General Timeline/PC 532 - Horizon Rises\|the rise of Horizon]].
 

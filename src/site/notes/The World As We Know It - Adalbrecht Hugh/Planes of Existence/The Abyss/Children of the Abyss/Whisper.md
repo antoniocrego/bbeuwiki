@@ -1,0 +1,7 @@
+---
+{"dg-publish":true,"permalink":"/the-world-as-we-know-it-adalbrecht-hugh/planes-of-existence/the-abyss/children-of-the-abyss/whisper/"}
+---
+
+These [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/Children of the Abyss/Children of the Abyss\|Children of the Abyss]] are beings completely composed of [[The World As We Know It - Adalbrecht Hugh/Magic and Mana/Mana Types/Abyssal Mana\|Abyssal Mana]], they manifest themselves in areas of high [[The World As We Know It - Adalbrecht Hugh/Magic and Mana/Mana Types/Abyssal Mana\|Abyssal Mana]] density and drip abyssal energy as they walk, corrupting the very soil. They do not possess any notable cognitive capabilities, merely serving as a manifestation to spread [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/The Abyss\|The Abyss]] and attack any beings which are not of abyssal nature.
+
+This term can also be utilized as an umbrella term for [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/Children of the Abyss/Children of the Abyss\|Children of the Abyss]], especially when identification of [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/Corruption\|Corruption]] stage is difficult.

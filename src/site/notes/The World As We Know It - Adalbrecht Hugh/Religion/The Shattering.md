@@ -8,7 +8,8 @@ This war left an unforgettable scar on the world, causing gods to come to be war
 
 The clashing of these young gods formed canyons, rivers of water and lava, fissures in reality itself. The effect of this war set back humanity thousands of years, and is said to have wiped out many a species, including great species of dragons which fought alongside the gods.
 
-The war was so bloody that no god rose victorious. It's unclear which gods survived this war, and if any still live to this day, but traces of [[The World As We Know It - Adalbrecht Hugh/Religion/Gods/Chronos, the Punished\|Chronos, the Punished]] emerge shortly after the war, so you could make the assumption that the God of Earth died then, and [[The World As We Know It - Adalbrecht Hugh/Religion/Gods/Chronos, the Punished\|Chronos]] took his place.
+The war was so bloody that no god rose victorious. It's unclear which gods survived this war, and if any still live to this day, but traces of [[The World As We Know It - Adalbrecht Hugh/Religion/Gods/Current Gods/Chronos, the Punished\|Chronos, the Punished]] emerge shortly after the war, so you could make the assumption that the God of Earth died then, and [[The World As We Know It - Adalbrecht Hugh/Religion/Gods/Current Gods/Chronos, the Punished\|Chronos]] took his place.
 
+This war created the seven positions of godhood in Olympus, reflected in the elements of the seven remaining gods, which gave way for magic to be birthed as an act of mortals, a reflection of the gods' capabilities.
 ### Shards of Godhood
 An effect of this grand war was the creation of the [[The World As We Know It - Adalbrecht Hugh/Shard of Godhood\|Shards of Godhood]], chunks of great power which were quite literally knocked out of the gods in **The Shattering**.

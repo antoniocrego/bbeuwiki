@@ -1,0 +1,7 @@
+---
+{"dg-publish":true,"permalink":"/the-world-as-we-know-it-adalbrecht-hugh/magic-and-mana/mana-types/abyssal-mana/"}
+---
+
+Abyssal Mana is a type of [[Mana\|mana]] which originates from the depths of [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/The Abyss\|The Abyss]], being present in the blood flow of [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/Corruption\|corrupted]] individuals. Due to it being a type of [[Mana\|mana]], it can be utilized to cast spells, but these are considered [[Forbidden Magic\|forbidden]] in most nations due to their potential to spread [[The World As We Know It - Adalbrecht Hugh/Planes of Existence/The Abyss/Corruption\|Corruption]].
+
+It shares many of its attributes with [[Dark Mana\|Dark Mana]], as utilized by spells of [[The World As We Know It - Adalbrecht Hugh/Magic and Mana/The Seven Elements\|the dark element]]. This connection is likely due to them both being traceable to the [[The World As We Know It - Adalbrecht Hugh/Religion/Gods/Seats in Olympus/God of Darkness\|God of Darkness]] and [[Darkness\|Darkness]] as a whole, possibly being the original form of [[Dark Mana\|Dark Mana]] before being adapted by living beings to not be harmful. This is further backed by the higher amount of [[Mana Corruption\|Mana Corruption]] cases in users of [[Dark Magic\|Dark Magic]].

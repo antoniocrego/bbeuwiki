@@ -1,0 +1,5 @@
+---
+{"dg-publish":true,"permalink":"/the-world-as-we-know-it-adalbrecht-hugh/the-nations/azryt-and-nyx-sombra/azryt/"}
+---
+
+A once-proud martial nation to the east of the central [[The World As We Know It - Adalbrecht Hugh/The Nations/The Lands of Gehenna\|Lands of Gehenna]], famed for its disciplined warrior society and devotion to [[The World As We Know It - Adalbrecht Hugh/Religion/Gods/Current Gods/Azula, the Fallen\|Azula, the Fallen]]. Its cliffside citadels and storm-charged temples now lie in ruins, corrupted by the [[The World As We Know It - Adalbrecht Hugh/Major Organizations/The Abyss/Abyss\|The World As We Know It - Adalbrecht Hugh/Major Organizations/The Abyss/Abyss]] and transformed into the shadowed isles of [[The World As We Know It - Adalbrecht Hugh/The Nations/Azryt and Nyx Sombra/Nyx Sombra\|Nyx Sombra]].
